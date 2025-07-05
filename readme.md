@@ -1,0 +1,1 @@
+I'm trying to learn coding AGAIN! I'm determined to stick with it this time. I've been reading about this topic and I'm excited to start coding. I'm looking forward to learning more about it. Odin Project!
